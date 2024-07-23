@@ -5,3 +5,5 @@ Despite her controversial speech against LGTBQ+ friends, J. K. Rowling was a suc
 But, I am 24 now, and no owl has come. I have accepted that perhaps, I am a muggle. However, that does not mean I cannot give myself, and my fellow readers, an experience of attending Hogwarts. To take matter into my hand, I look up muggle equivalent of Hogwarts subjects and want to share with you Herbology and Care for Magical Creatures in the form of gardening, herbalism (the study of plants for their medicinal properties) and insect study with a focus on pollinators and pests.
 
 If you are ready, buckle up, and welcome aboard!
+
+**Disclaimer:** All information on my website is for educational purpose only. They are NOT for profit (i.e., no sponsorship, advertisement, or programs/services to be purchased) and should NOT be used as medical advice. Please always consult your healthcare provider for any medically related questions. If you believe any of my content violates copyright, please contact me directly at han.tran2226@gmail.com, and said content will be removed permanently. Thank you!
