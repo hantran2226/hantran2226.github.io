@@ -6,4 +6,4 @@ But, I am 24 now, and no owl has come. I have accepted that perhaps, I am a mugg
 
 If you are ready, buckle up, and welcome aboard!
 
-**Disclaimer:** All information on my website is for educational purpose only. They are NOT for profit (i.e., no sponsorship, advertisement, or programs/services to be purchased) and should NOT be used as medical advice. Please always consult your healthcare provider for any medically related questions. If you believe any of my content violates copyright, please contact me directly at han.tran2226@gmail.com, and said content will be removed permanently. Thank you!
+**Disclaimer:** All information on my website is for educational purpose only. It is NOT for profit (i.e., no sponsorship, advertisement, or programs/services to be purchased) and should NOT be used as medical advice. Please always consult your healthcare provider for any medically related questions. If you believe any of my content violates copyright, please contact me directly at han.tran2226@gmail.com, and said content will be removed permanently. Thank you!
