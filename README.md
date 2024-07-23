@@ -7,13 +7,25 @@ But, I am 24 now, and no owl has come. I have accepted that perhaps, I am a mugg
 Herbology = Botany. I am learning herbalism (the study of plants for their medicinal properties).
 
 Care for Magical Creatures = Zoology. I will admit that I have limited knowledge in this field. However, given that my current hobby is gardening, I will focus on insects, including the pollinators and pests.
+
 Potions = General and Organic Chemistry. I can cover up to college-level.
+
 Alchemy = Nuclear Chemistry. I do not have knowledge in this field. Madam Curie was an expert in radioactivity.
+
 Charms = Computer Science. I will cover coding in Python.
+
 Transfiguration = Physics.
+
 Arithmancy = Mathematics. I can cover algebra, trigonometry, geometry, calculus, and statistics. 
+
 Defense Against the Dark Arts = Self-Defense, Weaponry, Forensic Science.
+
 Study of Ancient Runes = Foreign Language and Linguistic. I am learning Spanish and Mandarin.
+
 Apparition = Transportation. I prefer ships/boats.
+
+Astrology = Astrology. Minimal knowledge.
+
+Divination = Astronomy, Tarot, etc. Will not cover.
 
 If you are ready, buckle up, and welcome aboard!
