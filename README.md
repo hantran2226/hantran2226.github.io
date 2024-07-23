@@ -5,6 +5,7 @@ Despite her controversial speech against LGTBQ+ friends, J. K. Rowling was a suc
 But, I am 24 now, and no owl has come. I have accepted that perhaps, I am a muggle. However, that does not mean I cannot give myself, and my fellow readers, an experience of attending Hogwarts. To take matter into my hand, I decided to re-create magic subjects as muggle subjects, as following:
 
 Herbology = Botany. I am learning herbalism (the study of plants for their medicinal properties).
+
 Care for Magical Creatures = Zoology. I will admit that I have limited knowledge in this field. However, given that my current hobby is gardening, I will focus on insects, including the pollinators and pests.
 Potions = General and Organic Chemistry. I can cover up to college-level.
 Alchemy = Nuclear Chemistry. I do not have knowledge in this field. Madam Curie was an expert in radioactivity.
